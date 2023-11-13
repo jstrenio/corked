@@ -1,1 +1,1 @@
-# Check the game out at htts://corked.ski
+# Check the game out at http://corked.ski
